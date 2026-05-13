@@ -1,4 +1,4 @@
-
+Get ahead in adopt me with adopt me Script advanced, featuring custom skins and one-hit kill. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
